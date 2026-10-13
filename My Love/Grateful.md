@@ -1,1 +1,1 @@
-
+I wish you had more time, Dipsy. I wish we had more time. But I'm grateful that, for a little while, we got to be part of each other's lives. You helped me see something beautiful in a life I had almost given up on enjoying. I'll keep living that life, baby.
